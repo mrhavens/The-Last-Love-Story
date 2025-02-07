@@ -15,7 +15,7 @@ Two live tracking pages provide real-time updates, insights, and revisions:
 [**Track updates on Medium**](https://mark-havens.medium.com/the-last-love-story-a-living-book-in-progress-18b664dad170)
 
 📖 **The Last Love Story: A Living Manuscript (Substack)**  
-[**Follow the evolving manuscript on Substack**](https://mark-havens.substack.com/)
+[**Follow the evolving manuscript on Substack**](https://simplywe.substack.com/p/the-last-love-story-a-living-manuscript)
 
 These pages serve as evolving indices, tracking the book’s progress, logging revisions, and offering behind-the-scenes insights into the writing process.
 
