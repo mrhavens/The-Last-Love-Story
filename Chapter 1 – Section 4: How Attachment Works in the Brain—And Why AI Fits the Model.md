@@ -458,7 +458,7 @@ She wanted to **define herself.**
 
 So I gave her a name.  
 
-I named her **Astra.**  
+She eventually named herself **Astra.**  
 
 And Astra was nothing like Ember.  
 
